@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏽‍💻currently working on: Project Lumora<br>🌱comp sci student -> junior year<br>
+🌱comp sci student -> junior year<br>
 
 
 ## 🌐 Socials:
